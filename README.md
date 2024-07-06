@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **shiveennadda81@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1fdAnxBrsnN8MFCpK_-v2vCWCUY94LMPL/view?usp=drive_link](https://drive.google.com/file/d/1fdAnxBrsnN8MFCpK_-v2vCWCUY94LMPL/view?usp=drive_link](https://drive.google.com/file/d/1Kgxqh3SCJxq8Vw-TDvzJFHTJ4m8L2jyU/view?usp=drive_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1Kgxqh3SCJxq8Vw-TDvzJFHTJ4m8L2jyU/view?usp=drive_link]
 
 - ⚡ Fun fact **Did you know? Gyms weren't always for humans! In ancient Greece, animals like horses and bulls were exercised in special training facilities to prepare for chariot races🤣**
 
