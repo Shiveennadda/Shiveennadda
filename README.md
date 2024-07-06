@@ -4,7 +4,7 @@
 <img align="right" alt="Illustrate" width="400" src="https://static.wixstatic.com/media/bbe642_62414e50bef34ce28db1afabf55f17ec~mv2.gif">
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=shiveennadda&label=Profile%20views&color=0e75b6&style=flat" alt="shiveennadda" /> </p>
 
-- 🔭 I’m currently working on **Fund Tracking System Using Blockchain**
+- 🔭 I’m currently working on **Personal Porftolio**
 
 - 🌱 I’m currently learning **node.js**
 
